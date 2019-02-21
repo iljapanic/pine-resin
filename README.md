@@ -2,9 +2,19 @@
 
 
 
+## Pine sap glue - it's a survival thing
 
 
 
+![](images/youtube-survivalist.jpg)
+
+Sources (from top left): [1](https://www.youtube.com/watch?v=XOxwFwahpwg), [2](https://www.youtube.com/watch?v=Ay5l-gyx2IQ), [3](https://www.youtube.com/watch?v=M-FksxvtyiQ), [4](https://www.youtube.com/watch?v=8R4yExwKhS4)
+
+[*16 Uses of Sticky Pine Sap for Wilderness Survival and Self-Reliance*](https://survivalsherpa.wordpress.com/2015/02/05/16-uses-of-sticky-pine-sap-for-wilderness-survival-and-self-reliance/)
+
+
+
+## Collecting the resin
 
 
 
